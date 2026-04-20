@@ -76,6 +76,6 @@ This project explores how AI can support **healthcare and education** through:
 
 ## 📬 Contact
 
-📧 Email: your.email@example.com  
-📱 Phone: +92-XXXXXXXXXX  
-💼 GitHub: https://github.com/yourusername
+📧 Email: ijazu4412@gmail.com  
+📱 Phone: +92-3271001845 
+
